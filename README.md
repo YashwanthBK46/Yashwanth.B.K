@@ -26,7 +26,7 @@ I'm Yashwanth B K as a Full Stack developer. I have very good skills in HTMl, CS
 🔗 Connect with me
 ----
 📧Mail-TO: yashwanthbk46@gmail.com<br>
-<b
+<br>
 
 
 <b>Hobbies</b>
